@@ -1,0 +1,2 @@
+<body style="font-family: Segoe UI, Verdana, Arial">
+&lt;figgycity50>People of the SmilyUniverse.<br>&lt;figgycity50>interestiong bros<br>&lt;figgycity50>and smiley people<br>&lt;figgycity50>I have a brother<br>&lt;figgycity50>and I hate him<br>&lt;figgycity50>This is Chatr<br>&lt;figgycity50>The newest alternative to IRC<br>&lt;figgycity50>You can create servers with it<br>&lt;figgycity50>This is the official Chatr server<br>
